@@ -9,6 +9,8 @@ I am passionate about learning and giving back.
 🧑🏾‍🎓 I am currently working on my graphic portfolio.
 🧠 I am currently learning web authoring learning how to code.
 
+🥾🏖️🥧 I enjoying hiking, going to the beach and baking.
+
 **Look me up at**
 
 [LinkedIn](https://www.linkedin.com/in/kadia-astley-ba-99018441/) 
